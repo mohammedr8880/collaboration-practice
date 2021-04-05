@@ -4,9 +4,9 @@
 #### 4
 #### 5 part dos
 #### 6
-#### 7
+#### 7 Bob got his hand stuck inside the cookie jar
 #### 8
-#### 9 GitHub is really good
+#### 9 GitHub is really awesome
 #### 10
 #### 11
 #### 12
