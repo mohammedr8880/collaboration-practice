@@ -4,7 +4,7 @@
 #### 4
 #### 5 part dos
 #### 6
-#### 7
+#### 7 Bob got his hand stuck inside the cookie 
 #### 8
 #### 9
 #### 10
