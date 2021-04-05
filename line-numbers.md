@@ -8,8 +8,8 @@
 #### 8
 #### 9 GitHub is really awesome
 #### 10
-#### 11 H guys pt 2
+#### 11 Hi guys pt 2
 #### 12
-#### 13
+#### 13 nice
 #### 14
 #### 15
